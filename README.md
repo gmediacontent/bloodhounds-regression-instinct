@@ -1,1 +1,2 @@
-# bloodhounds-regression-instinct
+# Bloodhound’s Regression Instinct
+Yan, le protagoniste, a subi un lavage de cerveau de la part de l'empereur et a vécu comme sa marionnette. Après avoir découvert qu'il était le jouet de l'empereur, il a voulu se venger, mais il s'est effondré sous l'effet de la puissance de celui-ci. Il pensait être mort, mais lorsqu'il s'est réveillé, il s'est rendu compte qu'il avait régressé jusqu'à l'époque où il était une recrue. Se venger de l'empereur ou retrouver sa famille, tel était le choix qui s'offrait à lui. Le choix est entre ses mains.
